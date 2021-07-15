@@ -1,4 +1,4 @@
-### Hi there 👋 I'm Yhinkar (pronounce as /yin/ka/) am passionate about creating data projects, project that values to my life and people around me.
+### Hi there 👋 I'm Yhinkar (pronounce as /yin/ka/) am passionate about creating data projects, project that add values to my life and people around me.
 
 
 
