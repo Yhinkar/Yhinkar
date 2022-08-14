@@ -1,4 +1,4 @@
-### Hi there 👋 I'm Yhinkar (pronounce as /yin/ka/) am passionate about creating blockchain projects, project that add values to my life and the life's of people around me.
+### Hi there 👋 I'm Yhinkar (pronounce as /yin/ka/) am passionate about creating blockchain projects, project that add values to my life and the lives of people around me.
 
 
 
